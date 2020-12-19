@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to my doghouse! 
 
-I'm glad you are here. I plan to talk about ...
+Once upon a time, there lived a little duck in a doghouse.
